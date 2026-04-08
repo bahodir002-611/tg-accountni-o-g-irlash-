@@ -1,1 +1,1 @@
-# tg-accountni-o-g-irlash-
+# tg_accounti__o'g'irlaymiz 
